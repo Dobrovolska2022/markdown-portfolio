@@ -1,1 +1,1 @@
-[GitHub]([http://github.com](https://github.com/Dobrovolska2022))
+[GitHub](https://github.com/Dobrovolska2022)
